@@ -20,4 +20,4 @@
 
 选择正规免费资源站，让你安心观看高质量影片。
 
-<span style="display:none;">[Canonical link]( https://github.com/ribenwu20250710/492311 ）</span>
+<span style="display:none;">[Canonical link]( https://github.com/ribenzhe10072/492311 ）</span>
